@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate en marketing 
 - 📫 How to reach me virginialr2323@gmail.com
 - 😄 Pronouns: ..poca en inglés 
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: tenaz
 
 <!---
 Virginia520/Virginia520 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
